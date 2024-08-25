@@ -1,7 +1,8 @@
 - 👋 Hi, I’m Sanya Vohra.
 - 👀 I’m interested in Cybersecurity.
 - 🌱 I’m currently learning coding.
-- 📫 You can reach me at sanyavohra2006@gmail.com 
+- 📫 You can reach me at sanyavohra2006@gmail.com
+- 📫 Linkedin: www.linkedin.com/in/sanya-vohra-30a572324
 - 😄 Pronouns: She/her.
 - ⚡ Fun fact: I love music and im also a Guitarist.
 
